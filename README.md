@@ -19,6 +19,6 @@
 - Mini SOC-style automations
 
 📬 Let’s connect:  
-[LinkedIn](https://linkedin.com/in/your-link) | [Email](mailto:rahulraj.notify@gmail.com)
+[LinkedIn](https://www.linkedin.com/in/er-rahulkumar/) | [Email](mailto:rahulraj.notify@gmail.com)
 
 
